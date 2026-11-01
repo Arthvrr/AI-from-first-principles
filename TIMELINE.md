@@ -1,0 +1,1 @@
+# 2/11/2026 - Creation of the project AI-From-First-Principles
